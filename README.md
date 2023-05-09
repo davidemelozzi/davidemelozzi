@@ -13,7 +13,7 @@ Phone number: +31 3472858323
 Email: davidemelozzi@hotmail.it 
 
 
-[LinkedIn](https://www.linkedin.com/in/davide-melozzi-14b41b186) - [CV](https://acrobat.adobe.com/link/review?uri=urn:aaid:scds:US:d61bdf56-4d5b-4bd9-bb64-abaa7ce0708a)
+[LinkedIn](https://www.linkedin.com/in/davide-melozzi-14b41b186) - [CV](https://drive.google.com/file/d/1rJlfA-whz1EK9tADlpIKtOA7wqL7cTWz/view?usp=share_link)
 
 <!---
 davidemelozzi/davidemelozzi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
