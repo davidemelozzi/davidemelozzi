@@ -9,7 +9,7 @@
 - 📫 How to reach me:
 
 
-Phone number: +31 3472858323  
+Phone number: +39 3472858323  
 Email: davidemelozzi@hotmail.it 
 
 
